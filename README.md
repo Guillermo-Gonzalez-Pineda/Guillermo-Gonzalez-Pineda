@@ -26,7 +26,7 @@ Me interesa especialmente el desarrollo de soluciones basadas en **optimización
 
 - 📧 **Email:** [alu0101574899@ull.edu.es](mailto:alu0101574899@ull.edu.es)  
 - 💻 **GitHub:** [github.com/Guillermo-Gonzalez-Pineda](https://github.com/Guillermo-Gonzalez-Pineda)  
-- 🌐 **LinkedIn:** [linkedin.com/in/guillermo-gonzalez-pineda-646652299](www.linkedin.com/in/guillermo-gonzalez-pineda-646652299)
+- 🌐 **LinkedIn:** [linkedin.com/in/guillermo-gonzalez-pineda-646652299](https://www.linkedin.com/in/guillermo-gonzalez-pineda-646652299/)
 
 ---
 
